@@ -1,2 +1,2 @@
 # 5385398_Anand-Deshpande
-![Anand Photo](E:\SLDC)
+(5385398_ Anand GL.png)
